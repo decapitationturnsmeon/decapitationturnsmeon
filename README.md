@@ -6,4 +6,5 @@ alekscatoby29 on discord, friend reqs open
 
 /h/beheading on WPD is a blessing
 
-<img src="[https://tenor.com/ru/view/marsey-throw-it-back-animated-damn-gif-6620896888070896040]" alt="short description" width="600" />
+<img src="[https://tenor.com/ru/view/marsey-throw-it-back-animated-damn-gif-6620896888070896040]" />
+
