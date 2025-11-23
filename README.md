@@ -6,6 +6,7 @@ whisp to int if im in menu, or just text me on discord/telegram. dc - alekscatob
 
 i dont have a dni besides the obvious ones like zoos/maps and racists/homophobes/nazis
 
+casual 4chan and WPD user, a bit edgy but not toxic
 
 
 
