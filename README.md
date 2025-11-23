@@ -1,1 +1,3 @@
-<div class="tenor-gif-embed" data-postid="23326046" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/marsey-drama-cat-cute-nyan-gif-23326046">Marsey Drama GIF</a>from <a href="https://tenor.com/search/marsey-gifs">Marsey GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+c+h is ok always
+
+warning for nsfw-related stuff in link
