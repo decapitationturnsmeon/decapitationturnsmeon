@@ -1,15 +1,7 @@
-c+h is ok always
+c+h is ok always!
 
-you can find me anywhere.... but usually near the library or on some kind of crossroads
+friend reqs on discord are open (alekscatoby29)
 
-whisp to int if im in menu, or just text me on discord/telegram. dc - alekscatoby29, tg - alekscatoby
+common sense DNIs like zoos/pedos and nazis/racists + anyone who's too sensitive (nothing wrong with that jst stay away for your own sake)
 
-i dont have a dni besides the obvious ones like zoos/maps/proship and racists/homophobes/nazis
-
-casual 4chan and WPD user, a bit edgy/problematic but not toxic
-
-
-
-
-
-
+im an edgy moron into some weird shit
